@@ -4,7 +4,7 @@
 
 ╰┈➤ Estou aqui para aprender novas linguagens! ⊹ ࣪ ˖
 
-⊹ ̊. </> ｡ᵎ. Estou procurando aprender atualmente sobre Javascript e UX Design ˖♱₊⭒⁺.
+⊹ ̊. </> ｡ᵎ. Estou procurando aprender atualmente sobre Javascript, UX Design, MySQL˖♱₊⭒⁺.
 
 ⋆༺𓆩☠︎︎.+ Meu e-mail é kaori1xcomercial@gmail.com ˖⁺‧₊˚ ♡ ˚₊‧⁺˖
 
